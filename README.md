@@ -1,1 +1,0 @@
-# tristanbachmann.github.io
